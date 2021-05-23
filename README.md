@@ -1,2 +1,2 @@
 # TodoGold
-Gold Gold Gold Gold Gold Gold
+3.75 gram of gold mission on @Nomadcoders failed
